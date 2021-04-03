@@ -99,10 +99,10 @@
 
 **简单来说就一个字：猛。**
 
-第二期写作课今天已经开放报名。已经有 70 位朋友通过我的邀请加入了写作课。请添加我微信：Thank-lily，备注「写作课」，加入我们，我会把所有同学集结起来，一起上第二期的课，写第二期的作业，并且我会全部点评提供反馈。
+第二期写作训练营今天已经开放报名，请添加我微信：Thank-lily，备注「写作课」，加入我们。
 
-附上报名方式：https://www.yuque.com/books/share/b56bdda5-a2a0-4d15-8606-aaca6ae21129?# 
+附上报名方式: https://www.yuque.com/books/share/b56bdda5-a2a0-4d15-8606-aaca6ae21129/gzlmdd
 
-邀请码：D4020HPBYM
+邀请码: K1NDNH098K
 
-![我的邀请记录](https://i.loli.net/2021/01/26/mDQx1FOaL6AUCzN.jpg)
+![我的邀请码](https://i.loli.net/2021/04/03/Eb7GNC9xj1ihlPY.jpg)
